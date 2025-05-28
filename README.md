@@ -6,3 +6,7 @@ The biggest difference between the two is Starbound is a high space sci-fi adven
 ![alt text](image-4.png) 
 ![alt text](image-6.png) 
 The monsters you as the player face vary heavily! From the silly penguin general, to the malignant stain on the world that is the final boss and antagonist. This variation is remiscent of Terraria. But. Unlike it, this mish mash, while interesting, does not serve it well. 
+![alt text](image-7.png)
+![alt text](image-8.png)
+![alt text](image-9.png)
+![alt text](image-10.png)
